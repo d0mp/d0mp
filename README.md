@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @d0mp
+- 👀 I’m interested in funerals
